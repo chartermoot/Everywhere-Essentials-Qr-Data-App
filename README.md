@@ -1,0 +1,1 @@
+# Everywhere-Essentials-Qr-Data-App
